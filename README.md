@@ -6,4 +6,4 @@ i have been banned a total of 6 times spanning across 4 different accounts on bl
 
 i like the callisto protocol
 
-im terrible at coding but sm attempting to learn
+im terrible at coding but am attempting to learn
