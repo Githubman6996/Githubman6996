@@ -1,6 +1,6 @@
 i like hacking blooket 
 
-i have been banned a total of 9 times spanning across 4 different accounts on blooket
+i have been banned a total of 10 times spanning across 4 different accounts on blooket
 
 
 
