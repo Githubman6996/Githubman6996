@@ -1,6 +1,6 @@
 i like hacking blooket 
 
-i have been banned a total of 11 times spanning across different accounts on blooket
+i have been banned a total of 11 times spanning across 5 different accounts on blooket
 
 i like the callisto protocol
 
